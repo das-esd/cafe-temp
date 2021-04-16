@@ -1,1 +1,1 @@
-# temp-site-hospitality-1
+# Website Template - Cafe
